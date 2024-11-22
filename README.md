@@ -1,3 +1,3 @@
 # AndrewGold Portfolio
 
-All you need to know about me 
+All you need to know about me!
